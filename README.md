@@ -24,7 +24,7 @@
 ---
 
 ### 📫 Reach me at
-- 📧 kavyakaira2005@gmail.com@gmail.com  
+- 📧 kavyakaira2005@gmail.com 
 
 ---
 
